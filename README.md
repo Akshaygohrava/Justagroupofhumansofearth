@@ -1,3 +1,5 @@
+An  Collage Friendly Website !
+
 PREVIEW OF THIS SITE IS HERE !!!!
 
 
